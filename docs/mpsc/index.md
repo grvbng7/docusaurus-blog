@@ -1,0 +1,2 @@
+# Introduction 
+As you may know, I am the Assistant Commissioner of State Tax and have experience preparing for state PCS exams. I can guide you on common mistakes, recommend books and study resources, and help you create a study plan and strategy for these competitive exams. While everyone has their own study techniques, I aim to provide information that will be helpful for your preparation.
